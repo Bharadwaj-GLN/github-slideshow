@@ -7,7 +7,7 @@ Water rules !
 ---
 ---
 
-If not now, when ? ⌛
-You are enough 💪🏻💪🏻
-Change is the only constant ☮️🕊️
+- If not now, when ? ⌛
+- You are enough 💪🏻💪🏻
+- Change is the only constant ☮️🕊️
 ---
