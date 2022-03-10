@@ -3,7 +3,7 @@ layout: slide
 title: "Welcome to our second slide!"
 ---
 ---
-Water rules !
+Water rules ! 💦🥤
 ---
 ---
 
