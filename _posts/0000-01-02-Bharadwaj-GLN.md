@@ -5,7 +5,6 @@ title: "Welcome to our second slide!"
 ---
 Water rules ! 💦🥤
 ---
-
 ---
 - If not now, when ? ⌛
 ---
